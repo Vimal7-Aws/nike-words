@@ -94,3 +94,58 @@
 94. I am giving you the senses not exact quotes.
 95. Far more complicated than a black and white binary answer.
 96. Depends on the day of
+97. Obstacles (headwinds) and advantages (tailwinds).
+98. Far more complicated than a black and white binary answer.
+96. Depends on the day of the week.
+97. High risk, high reward, High risk high failure.
+98. Conventional .
+99. This is not a traditional circumstance this is an abnormal circumstance.
+100. I am a dragon and you need to let me fly.
+101. I wasn’t born yesterday, I can see it all over you face.
+102. Ask outrageous things.
+103. Manifestation of innovations
+104. It is not a vehicle .. its a statement.
+105. This is like a tide in the sea.. When the tide rises It will raise all the ships.
+106. Adds additional confluence.
+107. God please grant me patience and peace and trust as I await for the divine moment.
+108. King continues his love affair with batting in Australia.
+109. Ability of mind when to strike with a different option.
+110. Electrifying encounter.
+111. Ferocious character.
+112. In the spin of, I am on a rage.
+113. The wild side within.
+114. Flavour of the season
+115. Perfect killer on the loose, went out there in beast mode
+116. Violence is unapologetic.
+117. Liberty.
+118. It’s a solid bet ai agents has a great edge over.
+119. Absolutely you hit a very important key there.
+120. My answer to you is we lack data to support any theory.
+121. What do you need to make a more definitive statement.
+122. I changed my tune related to the rate cuts.
+123. I have seen this movie before… A Cristopher Nolan type.
+124. Unparalleled.
+125. Times 200000 + 50000 more.
+126. I am in your blindspot.
+127. it does rhyme… and its rhyming very very very much.
+128. These are the things which contribute to this meltdown.
+129. Weaponise it.
+130. Perfect metaphor.
+131. Ground work and blueprint.
+132. Let’s get the show on road.
+133. Are you baiting me.
+134. Wanna trade confessions.
+135. More chemistry than a science fair.
+136. Will make them squeal, I know the squealers when I see them.
+137. Start taking things a little more seriously.
+138. Enormous amount of evidence.
+139. Intense.
+140. Now the whole playing field has changed.
+141. Sentimentality has no place
+142. Planning it enough, wanting it enough.
+143. Astronomical.
+144. It now becomes a possibility.
+145. Eye wateringly complicated.
+146. I’m warming to the possibility.
+147. Raise your antenna
+
