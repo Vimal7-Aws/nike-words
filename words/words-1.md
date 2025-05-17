@@ -182,5 +182,6 @@
 179. Simple command over facts and technology.
 180. Massive outreach.
 181. Morph it into something massive.
+182. Massive deception.
 
 
