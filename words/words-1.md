@@ -180,5 +180,6 @@
 177. Scaling exponentially.
 178. Ebbs and flows.
 179. Simple command over facts and technology.
+180. Massive outreach.
 
 
