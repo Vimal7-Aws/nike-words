@@ -181,5 +181,6 @@
 178. Ebbs and flows.
 179. Simple command over facts and technology.
 180. Massive outreach.
+181. Morph it into something massive.
 
 
